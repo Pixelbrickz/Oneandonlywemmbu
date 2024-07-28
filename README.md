@@ -12,3 +12,5 @@ I Dont mind being cuddled at all regardless if C+h isnt in my name Since i dont 
 
 WIP
 
+my son if anyone cares 
+![Screenshot 2024-07-25 112925](https://github.com/user-attachments/assets/40c0a86c-d478-4b5f-ad99-8d905aedbf7b)
